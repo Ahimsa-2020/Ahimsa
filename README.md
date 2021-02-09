@@ -1,1 +1,1 @@
-# ASANA
+# AHIMSA
